@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **endokishan@gmail.com**
 
-- 📄 Know about my experiences [http://bit.ly/Kishan_cv](http://bit.ly/Kishan_cv)
+- 📄 My Resume [http://bit.ly/Kishan_cv](http://bit.ly/Kishan_cv)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
